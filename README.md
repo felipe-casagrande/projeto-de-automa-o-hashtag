@@ -1,1 +1,0 @@
-# projeto-de-automação-hashtag
